@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Raphinotboiii! But you can call me Raph ;)
+- I'm a tiny developper currrently working on some small projects that I'll eventually upload to the public!
